@@ -1,1 +1,1 @@
-# ThucHanh01-Tr-ng-Th-nh-Quang-Ph-Th-i-H-ng
+# ThucHanh01 Truong Thinh, Quang Phu, Thai Hung
